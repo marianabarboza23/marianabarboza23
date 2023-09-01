@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @marianabarboza23
 - 👀 I’m interested na arquitetura 
-- 🌱 I’m currently  
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently no ensino medio
+- 💞️ I’m looking to collaborate on no meu futuro com a arquitetura 
 - 📫 How to reach me ...
 
 <!---
