@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @marianabarboza23
-- 👀 I’m interested
+- 👀 I’m interested na arquitetura 
 - 🌱 I’m currently  
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
